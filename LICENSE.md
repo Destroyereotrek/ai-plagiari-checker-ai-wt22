@@ -1,4 +1,4 @@
-# 
+# Gratuito AI Plagiarism Checker preajustes. Con IA generativa y integración de chatbot — optimizado para el máximo rendimiento.
 
 
 
